@@ -1,4 +1,4 @@
-TERMS OF USE
+TERMS OF SERVICE
 
 Last updated February 11, 2023
 
